@@ -1,4 +1,4 @@
-elementos do RPG.
+esse é meu servidor de samp, criei um GANG x GANG, misturando elementos do RPG e DM.
 DISCORD: https://discord.gg/pjdFFGMDUC
 
 LOGIN\n
